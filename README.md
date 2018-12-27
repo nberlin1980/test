@@ -1,1 +1,1 @@
-Jakke is the best!
+Jake is the best!
